@@ -2,7 +2,7 @@
 <img width="376" height="60" alt="17607883791814975272702066737825" src="https://github.com/user-attachments/assets/691d2c3c-30ff-4707-b99c-1375761c9a5d" />
 
 
-He ![ao5x1u](https://github.com/user-attachments/assets/0e885086-46a5-4474-858f-e419d7441f5d) they 
+He ![ao5x1u](https://github.com/user-attachments/assets/0e885086-46a5-4474-858f-e419d7441f5d) they
 
 
 
