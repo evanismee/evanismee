@@ -14,9 +14,3 @@ He ![ao5x1u](https://github.com/user-attachments/assets/0e885086-46a5-4474-858f-
 
 
 ![17607885608184019238225314359501](https://github.com/user-attachments/assets/b7a4ef58-1af7-4de2-95cf-faacc8d3ff16) ![17607886129265850402512066552642](https://github.com/user-attachments/assets/e2c4e7ed-23d2-46e3-9784-d9e7413c1985)
-
-       
-
-
-
-       
